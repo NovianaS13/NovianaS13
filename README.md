@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NovianaS13
 - 👀 I’m interested in Alam, Fisika Instrumentasi, Artificial Inteligence, dan lainnya 
 - 🌱 I’m currently learning in Institut Teknologi dan Sains Nahdlatul Ulama Pekalongan
-- 
+- 📫 How to Reach me in novianasafira5@gmail.com
 
 
 
